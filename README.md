@@ -3,10 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=sspetie&color=ad2743&style=flat-square)
 
 
-
-
-
-![ln](https://github.com/user-attachments/assets/a21ba6f6-116e-43e0-9d52-6f6840035c61)
+![ln](https://github.com/user-attachments/assets/56c3c585-18fd-4a8e-9f3a-57808ba8653f)
 
 <img width="125" height="58" alt="image" src="https://github.com/user-attachments/assets/d3be022f-690a-4452-9093-6564dd81cd4c" />
 <img width="125" height="58" alt="image" src="https://github.com/user-attachments/assets/5d2f6b1a-2a29-4b28-82be-c0c4ae65e447" />
