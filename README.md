@@ -1,3 +1,4 @@
+
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=sspetie&color=ad2743&style=flat-square)
@@ -9,7 +10,7 @@
 <img width="125" height="58" alt="image" src="https://github.com/user-attachments/assets/53af645a-bc66-4a46-9bc2-e506589c7f01" />
 
 <br><img width="170" height="171" alt="image" src="https://github.com/user-attachments/assets/61bb41b0-c3e6-4e5a-8b6c-ee312bb89525" />
-
+<img width="170" height="171" alt="photo_2026-04-16_23-02-39" src="https://github.com/user-attachments/assets/aa25c008-4690-426c-8ae4-1174b788e043" />
 
 
 ˗ˏˋ 𝙒𝙄𝙋 ; ...´ˎ˗
