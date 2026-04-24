@@ -5,9 +5,7 @@
 
 ![ln](https://github.com/user-attachments/assets/0546f48e-77dd-46eb-a8df-d758af48da77)
 
-<img width="125" height="58" alt="image" src="https://github.com/user-attachments/assets/d3be022f-690a-4452-9093-6564dd81cd4c" />
-<img width="125" height="58" alt="image" src="https://github.com/user-attachments/assets/5d2f6b1a-2a29-4b28-82be-c0c4ae65e447" />
-<img width="125" height="58" alt="image" src="https://github.com/user-attachments/assets/53af645a-bc66-4a46-9bc2-e506589c7f01" />
+<img width="375" height="58" alt="Без названия288_20260424180541" src="https://github.com/user-attachments/assets/1a59035e-4680-4f51-870e-22b8229f3c7b" />
 
 <br><img width="170" height="171" alt="image" src="https://github.com/user-attachments/assets/61bb41b0-c3e6-4e5a-8b6c-ee312bb89525" />
 <img width="170" height="171" alt="photo_2026-04-16_23-02-39" src="https://github.com/user-attachments/assets/aa25c008-4690-426c-8ae4-1174b788e043" />
