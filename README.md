@@ -1,7 +1,6 @@
-
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=sspetie&color=ad2743&style=flat-square)
+![](https://komarev.com/ghpvc/?username=sspetie&color=eb7da1&style=plastic&label=hello+kitty)
 
 <img width="400" height="400" alt="15145203665575" src="https://github.com/user-attachments/assets/15c0c1a4-6e89-414a-bc89-e95a5f99ce61" />
 
@@ -14,5 +13,7 @@
 ˗ˏˋ𝙄 𝙥𝙡𝙖𝙮: 𝙨𝙤𝙢𝙚 𝙬𝙖𝙧𝙛𝙧𝙖𝙢𝙚, 𝙨𝙤𝙢𝙚 𝙬𝙖𝙧𝙝𝙖𝙢𝙢𝙚𝙧 𝙫𝙚𝙧𝙢𝙞𝙣𝙩𝙞𝙙𝙚, 𝙢𝙡𝙗𝙗, 𝙯𝙯𝙯, 𝙜𝙚𝙣𝙨𝙝𝙞𝙣, 𝙘𝙧𝙠, 𝙝𝙨𝙧´ˎ˗
 <br/><sub>𝘵𝘩𝘦 𝘸𝘢𝘺 𝘺𝘰𝘶 𝘸𝘢𝘭𝘬, 𝘵𝘩𝘦 𝘸𝘢𝘺 𝘺𝘰𝘶 𝘶𝘯𝘥𝘦𝘳𝘴𝘵𝘢𝘯𝘥 𝘮𝘦.<br/>
 
-<br><img width="170" height="171" alt="image" src="https://github.com/user-attachments/assets/61bb41b0-c3e6-4e5a-8b6c-ee312bb89525" />
-<img width="170" height="171" alt="photo_2026-04-16_23-02-39" src="https://github.com/user-attachments/assets/aa25c008-4690-426c-8ae4-1174b788e043" />
+<img width="340" height="171" alt="ejejjeje" src="https://github.com/user-attachments/assets/64fb5352-7efb-445d-9568-8b67fd9edb93" />
+
+
+
