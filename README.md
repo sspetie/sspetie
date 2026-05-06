@@ -1,3 +1,4 @@
+<img width="400" height="300" alt="lv_0_20260506164631" src="https://github.com/user-attachments/assets/37f5eee9-e152-4227-8440-e1cf30b10489" />
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=sspetie&color=eb7da1&style=plastic&label=hello+kitty)
