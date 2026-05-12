@@ -7,6 +7,7 @@
 
 
 <br/><img width="375" height="58" alt="Без названия288_20260424180541" src="https://github.com/user-attachments/assets/1a59035e-4680-4f51-870e-22b8229f3c7b" />
+
 ![ln](https://github.com/user-attachments/assets/0546f48e-77dd-46eb-a8df-d758af48da77)
 
 ˗ˏˋ 𝙒𝙄𝙋 ; ...´ˎ˗
